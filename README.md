@@ -2,6 +2,9 @@
 
  Social  Media Handles - 
  Instagram - https://instagram.com/innovascape_llp?igshid=MzRlODBiNWFlZA==
+
  LinkedIn - https://www.linkedin.com/company/innovascape-llp/
+
  Email - reach@innovascape.in
+
  Whatsapp - +91 8277305406
